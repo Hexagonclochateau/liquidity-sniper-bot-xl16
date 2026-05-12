@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip liquidity sniper bot | dex-sniping + front-running, the #1 liquidity sniper bot. Includes dex-sniping and front-running for a faster and more
 
 
 
